@@ -9,3 +9,4 @@ Corso di Laurea triennale in Fisica, Università degli Studi di Napoli Federico 
 a.a. 2025-2026, 2° semestre, 2026.
 
 *Il materiale pubblicato, salvo dove è indicata la provenienza, è di proprietà intellettuale dell'autore.*
+
